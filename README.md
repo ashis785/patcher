@@ -6,7 +6,7 @@
 
 【c】Viraj【c】          
 
-【d】moddjgzdro【d】
+【d】Anwaar【d】
 
 【e】fuers【e】
 
